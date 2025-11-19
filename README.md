@@ -57,8 +57,8 @@ Busco fortalecer minha base técnica construindo projetos simples, bem estrutura
 
 ## 📬 Contato
 
-**LinkedIn:** _(adicione seu link)_  
-**Email:** _(caso queira deixar público)_
+**LinkedIn:** _linkedin.com/in/lucas-harb_  
+**Email:** _harblucas2021@gmail.com_
 
 ---
 
